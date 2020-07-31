@@ -6,4 +6,3 @@ Powerball takes place on each Wednesday and Saturday at 11:00 PM EST. The minimu
 
 Ticket price is only $2 per play. There is an additional option of Power Play which costs $1 additional per play and this will multiply your winning with some multiplier drawn for that draw. It can be 2X, 3X, 4X, 5X, 10X. So there is a really good chance of winning a huge amount.
 
-<a href="https://powerball.us.org">Powerball</a>
